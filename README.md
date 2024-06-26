@@ -1,0 +1,1 @@
+CrazySlize - An 8k8b Box Slicing Game where u can have fun by slicing boxes when it appears on the screen and beat your own score with 2 game modes Normal And Casual Mode Took Inspiration from the fruit ninja game <3
